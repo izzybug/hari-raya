@@ -1,1 +1,1 @@
-ga ada lagi
+
